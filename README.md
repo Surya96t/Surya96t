@@ -1,6 +1,6 @@
 # 💫 Hi there:
 
- <br>👋I'm interested in all things Data.<br><br>⚡ Let's build AI solutions together!!<br><br>💬 Feel to contact me at surya96t@gmai.com
+ <br>👋I'm interested in all things Data.<br><br>⚡ Let's build AI solutions together!!<br><br>💬 Feel to contact me at surya96t@gmail.com
 
 
 ## 🌐 Socials:
